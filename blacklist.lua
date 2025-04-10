@@ -14,7 +14,7 @@ kaowjqp = "",
 Olivier13042 = "",
 Romakar888 = "",
 yow7iq = "",
-jojos_3 = "",
+jojos_3 = "", -- Bitch Dont Look Inside Here Fucking Skid
 wowimcoolgamer774 = "",
 ["129_auto"] = "",
 --lIlIlIlItrolldjdejjb = "",
@@ -121,5 +121,5 @@ Voicehahsbs = "",
 kingmatviyy = "",
 ["123lush123b"] = "",
 Pickle345790 = "",
-jojos_351 = "",
+jojos_351 = "", -- Bitch Dont Look Inside Here, Before I Put another Dio arrow In You Fucking Skid
 }
