@@ -121,7 +121,7 @@ Voicehahsbs = "",
 kingmatviyy = "",
 ["123lush123b"] = "",
 Pickle345790 = "",
-PlayStationPlayer = "", --Lil bro forgot to close hard gay porn so it was on his mic. bitch ass vampire "Dio" same as jojos. him is vampire because him need to suck sperm to live.
+--PlayStationPlayer = "", --Lil bro forgot to close hard gay porn so it was on his mic. bitch ass vampire "Dio" same as jojos. him is vampire because him need to suck sperm to live.
 jojos_351 = "", --[[ Bitch Dont Look Inside Here, Before I Put another Dio arrow In You Fucking Skid. Whole Fucking army Gonna Be against You Bitch, I aint Playing With Your Titties. Hoe. Piece Of Frozen Cum. 
   Suck My Cock Dont Forget To Suck Other Members Bitch. Fucking Vampire I Will Remove Shadows Bitch.
   I Didnt Ended It jojos_351, The Numbers In UserName Is How Much You Got Recored In Hard Gay Porn, Fucking BI. Transgender, Bitch, Best Sperm Vacum For Free.
